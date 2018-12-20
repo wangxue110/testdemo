@@ -1,9 +1,3 @@
-11111111
+if you want to learn python ,you can add me QQ : 2824185689
 
-222222222
-
-3333333333
-
-44444444444444
-
-666666666666666
+I will teach you ! haha
